@@ -1,3 +1,3 @@
-# zimneplavanie
+# Zimne Plavanie
 
-14.11. 2019 - 11&deg; 8 min
+14.11. 2019 - 11&deg; - 8 min - Drazdiak
